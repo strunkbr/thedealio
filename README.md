@@ -1,3 +1,3 @@
 # thedealio
 
-what's your deal, man !!
+what's your deal, man?
